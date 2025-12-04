@@ -5,3 +5,6 @@
 
 9/11/25 - episode 2.5
 * `https://drive.google.com/drive/folders/16-H6eD3i40dQ3CqtkYdt5glYtHWrZp4j?usp=share_link`
+
+12/4/25 - episode 3 (9 mins long)
+* `https://drive.google.com/file/d/1c3nZmUsNnav9NNKCUYTaX3v1I4OWDJm2/view?usp=share_link`
