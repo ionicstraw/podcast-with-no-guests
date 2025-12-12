@@ -8,3 +8,4 @@
 
 12/4/25 - episode 3 (9 mins long)
 * `https://drive.google.com/file/d/1c3nZmUsNnav9NNKCUYTaX3v1I4OWDJm2/view?usp=share_link`
+![img](oh-yeah-i-want-this-to-happen.png)
